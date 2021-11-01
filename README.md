@@ -1,0 +1,1 @@
+# praktikum_individu_AI
